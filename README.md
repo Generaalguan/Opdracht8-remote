@@ -1,1 +1,1 @@
-ik ben over 6 weken 18
+Sorry Jordan dat ik laat was, wou nog slapen
